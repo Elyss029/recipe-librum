@@ -1,4 +1,4 @@
-# Limão e hortelã
+# Limão e hortelã 🥤
 ### Ingredientes:
 
 - 1 unidade de limão com casca, em cubos, ou pode espremer eles.
