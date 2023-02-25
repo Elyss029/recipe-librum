@@ -1,4 +1,4 @@
-# Frango_coreano
+# Frango frito coreano
 
 ### Ingredientes:
 
