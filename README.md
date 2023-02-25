@@ -1,13 +1,13 @@
 # Livro de receitas :v:
 
-### *Frango coreano*
+### *Frango frito coreano*
 
 
 ### *Cake cup*
 
 
 
-### *Limão e hortelã*
+### *Suco de lmão e hortelã*
 
 
 ### *Salada*
