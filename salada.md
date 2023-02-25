@@ -1,5 +1,5 @@
 
-# Salada
+# Salada 🥗
 
 ### Ingredientes:
 
