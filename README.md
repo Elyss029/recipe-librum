@@ -29,7 +29,7 @@ Modo de preparo:
 
 - 3)Coloque a caneca sobre um pratoe leve ao forno micro-ondas por 3 minutos em potência alta.
 
-# *Suco de limão com hortelã*
+# *Limão e hortelã*
 
 
 *Salada*
