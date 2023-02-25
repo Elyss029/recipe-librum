@@ -1,13 +1,13 @@
 # Livro de receitas :v:
 
-### [Frango frito coreano]
+### [Frango frito coreano](
 
 
 ### *Cake cup*
 
 
 
-### [Suco de lmão e hortelã](
+### [Suco de lmão e hortelã](https://github.com/Elyss029/recipe-librum/blob/main/limao_e_hortela.md)
 
 
 ### *Salada*
